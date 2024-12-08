@@ -1,1 +1,1 @@
-https://m.dana.id/n/link/pay?bizNo=20241201111212800110166661526474486
+https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTq-HC2z6B5uUunxMATpBRpkKkmcVL9J7yPQg&usqp=CAU
